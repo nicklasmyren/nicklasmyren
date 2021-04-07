@@ -1,7 +1,7 @@
 #### NICKLAS23👋
 Coco <3
 
-MAMMAM<3 30   3434     DHJDIUIHEIFG EIOYTF
+MAMMAM<3 30   3434     DHJDIUHEIFG EIOYTF
 <!--
 **nicklasmyren/nicklasmyren** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
