@@ -2,6 +2,8 @@
 Coco <3
 
 MAMMAM<3 30   3434     DHJDIUHEIFG EIOYTF
+
+Jeg er medlem av: [Codespace](https://github.com/venturahimself/codespace)
 <!--
 **nicklasmyren/nicklasmyren** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
